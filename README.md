@@ -1,4 +1,5 @@
-<img width="1744" height="572" alt="1000067983" src="https://github.com/user-attachments/assets/1bd95f27-3179-44cf-8cb1-53cfe5523c26" />
+<img width="1500" height="500" alt="Untitled (1500 x 500 px)" src="https://github.com/user-attachments/assets/b59d84ab-b4ab-4e8c-8d3c-ce2dd058951a" />
+
 
 ## Hi, I'm Rachel
 
